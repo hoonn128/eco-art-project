@@ -68,7 +68,7 @@
 - 앞으로 플라스틱 소비를 줄이고, 익숙한 일상 속 오염을 더 민감하게 바라보겠다는 다짐을 하게 되었다.
 
 ## 📚 참고 자료
-- [환경 관련 웹사이트](링크)
+- [참고헌 뉴스 자료] (https://www.kidshankook.kr/news/articleView.html?idxno=9649)
 - [참고한 에코아트 작품] (https://titannational.com/artfromplasticwaste/?utm_source=chatgpt.com)
 
 ## 🏷️ 태그
